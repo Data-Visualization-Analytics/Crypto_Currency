@@ -1,1 +1,1 @@
-# 🌍💻 Crypto Currency Visualization 💲💰
+# 🌍💻 Crypto Currency Visualization 🚀💰
